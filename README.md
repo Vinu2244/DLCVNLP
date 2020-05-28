@@ -1,1 +1,1 @@
-DLCVNLP Work Space
+DLCVNLP Course
